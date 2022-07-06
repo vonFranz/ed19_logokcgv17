@@ -1,1 +1,0 @@
-# ed19_logokcgv17
